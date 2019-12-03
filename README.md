@@ -10,4 +10,4 @@ My favorite 3 artist are A Boogie, Polo G, J.I
 
 On the weekends I like to hangout with friends
 
-nice to meet u
+hi my name is cami, nice to meet u
