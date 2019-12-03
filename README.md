@@ -9,3 +9,5 @@ My favorite color is baby blue
 My favorite 3 artist are A Boogie, Polo G, J.I
 
 On the weekends I like to hangout with friends
+
+nice to meet u
